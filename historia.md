@@ -69,5 +69,5 @@ romper el ciclo o abrazarlo.
 ## Capítulo 11: El ciclo continúa
 La elección desató una fuerza silenciosa. La luz lo envolvió y luego, oscuridad.
 Cuando abrió los ojos, estaba de nuevo en la cabaña. El sol entraba entre las
-cortinas raídas. Afuera, el bosque cantaba. No recordaba cómo había llegado
+cortinas. Afuera, el bosque cantaba. No recordaba cómo había llegado
 allí.
