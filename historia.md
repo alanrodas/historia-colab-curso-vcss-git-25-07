@@ -82,3 +82,7 @@ La elección desató una fuerza silenciosa. La luz lo envolvió y luego, oscurid
 Cuando abrió los ojos, estaba de nuevo en la cabaña. El sol entraba entre las
 cortinas raídas. Afuera, el bosque cantaba. No recordaba cómo había llegado
 allí.
+Un susurro lejano llamó su atención, apenas audible entre el murmullo del viento.
+Sentía una extraña mezcla de miedo y esperanza que lo empujaba a levantarse.
+El reloj en la pared marcaba una hora imposible, como si el tiempo se hubiera detenido.
+Sabía que esta vez, la historia no acabaría igual; debía romper el ciclo de una vez por todas.
