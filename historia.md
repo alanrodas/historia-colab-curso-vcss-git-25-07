@@ -8,8 +8,14 @@ siquiera quién era del todo.
 
 ## Capítulo 02: Huellas y secretos
 El suelo húmedo estaba plagado de pisadas. Algunas eran suyas, otras no.
-Siguiéndolas, Adam encontró un viejo diario cubierto de barro. La portada
-llevaba su nombre, y una frase subrayada lo hizo temblar: “No confíes en ellos”.
+Siguiéndolas, Adam encontró un viejo diario cubierto de barro. Al verlo se dio 
+cuenta de que se trataba del diario de su amada, al leer la primera frase 
+se quedo boquiabierto, la frase decia: "Olvidate".
+En ese momento empezó a recordar su último encuentro con su madre,
+como habian cambiado las cosas al pasar de los dias, y de su ultima
+discución que termino acabando todo, fue un momento de frustracion y sufrimiento,
+pero tuvo que continuar su camino.
+
 
 ## Capítulo 03: Sombras en la niebla
 A medida que avanzaba, la bruma lo envolvía. Voces apagadas surgían entre los
