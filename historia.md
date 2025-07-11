@@ -59,7 +59,12 @@ como si lo reconociera.
 ## Capítulo 09: Más allá del umbral
 El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un
 color imposible, y la gravedad cambiaba con cada paso. Figuras encapuchadas lo
-esperaban. “Has regresado”, dijo una voz. “Pero no eres el mismo”.
+esperaban. “Volviste”, dijo una voz. “Pero ya no sos el mismo”.
+
+Mientras se aclimataba e intentaba hacer pie iba reconociendo, poco a poco,
+a través de visiones, quienes eran aquellos robustos e imponentes encapuchados.
+Una vez en situación se dió cuenta lo que estaba pasando: su presencia estaba
+lejos de ser coincidencia, él era parte de algo más grande que si mismo.
 
 ## Capítulo 10: La decisión final
 Los recuerdos regresaron con violencia. El pacto, el sacrificio, la promesa
