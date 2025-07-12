@@ -20,6 +20,12 @@ Con pasos inciertos, se acercó a la única ventana, descubriendo un paisaje den
 arbolado. No había señales de caminos o civilización, estaba completamente aislado. 
 El aroma a tierra húmeda y pino invadía la estancia, trayendo consigo una extraña 
 sensación de familiaridad que lo inquietaba profundamente.
+entumecido y la mente en blanco. No tenía idea de dónde estaba, pero algo en su  
+interior sabía que no era la primera vez.
+
+La madera del suelo crujía con cada paso que daba, como si le molestara su presencia.
+Había marcas en las paredes, garabatos que no reconocía, pero le provocaban escalofríos.  
+Abrió la puerta con cautela, y el canto de los pájaros no le trajo paz, sino una inquietud extraña. El aire olía a humedad y volanban cenizas, como si algo hubiera sido quemado hace poco.
 
 ## Capítulo 02: Huellas y secretos
 El suelo húmedo estaba plagado de pisadas. Algunas eran suyas, otras no.
