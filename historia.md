@@ -62,9 +62,9 @@ toda resistencia se desmoronó. El flujo de memorias lo atravesó como un relám
 sellados en silencio, traiciones antiguas, y un nombre susurrado por voces olvidadas. 
 Adam cayó de rodillas. Ya no era solo un viajero; era la chispa que podía romper —o cerrar— el ciclo.
 
-Mientras la figura mantenía la mano sobre su pecho, una energía ancestral comenzó a palpitar en su interior,
-iluminando sombras que creía enterradas. La voz que había escuchado en sus sueños ahora resonaba con claridad: 
-“El destino te llama, Adam. El umbral está abierto, y solo tú decides qué vendrá después.”
+Mientras la figura mantenía la mano sobre su pecho, una energía ancestral comenzó a palpitar en su interior, 
+iluminando sombras que creía enterradas. La voz que había escuchado en sus sueños ahora resonaba con claridad: “
+El destino te llama, Adam. El umbral está abierto, y solo tú decides qué vendrá después.”
 
 ## Capítulo 10: La decisión final
 Los recuerdos regresaron con violencia. El pacto, el sacrificio, la promesa
