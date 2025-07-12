@@ -47,34 +47,40 @@ rostro que le suplicaba. Adam despertaba sudando, con el eco de un nombre en los
 labios que no lograba recordar del todo.
 
 ## Capítulo 07: La traición
-Adam observó cómo el extraño evitaba mirarlo. El brillo en su brazo parecía incomodarlo,
-como si ocultara un secreto que estaba a punto de estallar. “Eso no debería estar ahí…”, 
-repitió el hombre, pero esta vez con un tono de miedo y no de sorpresa. El ambiente cambió,
-y el bosque, que antes parecía acompañarlo, ahora se volvía hostil y distante.
-
-Mientras Adam se alejaba del fuego, notó que el diario tenía una página que no recordaba 
-haber leído. Allí, escrita con la misma tinta roja, decía: “Desconfiá del que te guía. 
-Él recuerda más de lo que dice.” Una ráfaga de viento apagó las llamas. El extraño había 
-desaparecido.
+La desconfianza crecía. El extraño evitaba algunas preguntas y reaccionó con temor al 
+ver una marca en el brazo de Adam, como si reconociera en ella algo peligroso. 
+“Eso no debería estar ahí…”, murmuró.
 
 ## Capítulo 08: El umbral prohibido
-Solo y empujado por la necesidad de entender, Adam siguió los símbolos que brillaban 
-en su piel. Lo llevaron hasta una puerta de piedra escondida entre raíces gruesas y musgo. 
-No tenía cerradura, pero al tocarla, esta vibró como si reconociera su esencia.
+Guiado por símbolos similares a su marca, Adam llegó a una puerta de piedra en lo 
+profundo del bosque. Al tocarla, esta tembló suavemente y comenzó a abrirse, 
+como si lo reconociera.
 
-La piedra comenzó a abrirse con un susurro grave, dejando ver un corredor que descendía 
-en espiral. Las paredes estaban talladas con escenas que ya había visto en sus sueños: 
-torres en llamas, figuras que se deshacían en sombras y una silueta idéntica a la suya 
-atravesando un portal.
+## Capítulo 09: Más allá del umbral  
+El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un  
+color imposible, y la gravedad cambiaba con cada paso. Figuras encapuchadas lo  
+esperaban. “Volviste”, dijo una voz. “Pero ya no sos el mismo”.
 
-## Capítulo 09: Más allá del umbral
-Al cruzar, el mundo cambió. La gravedad parecía caprichosa, el cielo tenía un color que 
-no podía nombrar, y el aire olía a recuerdos rotos. Flotaban objetos, estructuras 
-inconexas, y todo parecía moverse según pensamientos que no eran suyos.
+Mientras se aclimataba e intentaba hacer pie, iba reconociendo poco a poco,  
+a través de visiones, quiénes eran aquellos robustos e imponentes encapuchados.  
+Una vez en situación, se dio cuenta de lo que estaba pasando: su presencia no  
+era azarosa, él era parte de un ciclo del que alguna vez intentó escapar.
 
-Figuras encapuchadas lo esperaban en círculo. Una de ellas levantó la mano y una voz 
-resonó sin abrir los labios: “Has regresado, pero no sos el mismo. Esta vez, no olvides 
-quién sos. El ciclo está por romperse.” Adam sintió que todo, finalmente, estaba por empezar.
+Las figuras lo rodearon sin hablar, pero sus pensamientos retumbaban en su mente.  
+No eran enemigos, ni aliados. Eran los guardianes de un equilibrio al que Adam  
+había traicionado en otra vida. Una vida que ahora recordaba solo en fragmentos.  
+Todo a su alrededor parecía flotar, incluso su culpa, suspendida en ese otro mundo.
+
+Sus ojos se adaptaron lentamente a la extraña luz, mientras una mezcla de temor y 
+determinación crecía en su pecho. Sabía que cruzar ese umbral lo había transformado,
+pero aún no comprendía cuánto ni en qué dirección.
+Las figuras avanzaron, susurrando secretos que parecían resonar en el aire mismo,
+prometiendo respuestas... o quizá un destino irreversible.
+
+Entonces, una de las figuras se adelantó y colocó una mano en su pecho. En ese instante, 
+toda resistencia se desmoronó. El flujo de memorias lo atravesó como un relámpago: pactos 
+sellados en silencio, traiciones antiguas, y un nombre susurrado por voces olvidadas. 
+Adam cayó de rodillas. Ya no era solo un viajero; era la chispa que podía romper —o cerrar— el ciclo.
 
 
 ## Capítulo 10: La decisión final
