@@ -57,6 +57,12 @@ No eran enemigos, ni aliados. Eran los guardianes de un equilibrio al que Adam
 había traicionado en otra vida. Una vida que ahora recordaba solo en fragmentos.  
 Todo a su alrededor parecía flotar, incluso su culpa, suspendida en ese otro mundo.
 
+Una de las figuras se adelantó y bajó la capucha. Su rostro era el de una mujer anciana, 
+aunque sus ojos brillaban con una juventud inquietante. Adam la tomó con manos temblorosas; 
+al tocarla, un aluvión de memorias se desató dentro suyo. Voces, promesas rotas, 
+un juramento antiguo que aún lo ataba a ese lugar. 
+Y entonces comprendió: el umbral no era un destino, sino una prueba que debía enfrentar una vez más.
+
 # Capítulo 09: Más allá del umbral
 El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un
 color imposible, y la gravedad cambiaba con cada paso. Figuras encapuchadas lo
