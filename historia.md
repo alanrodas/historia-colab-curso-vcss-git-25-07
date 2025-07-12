@@ -45,10 +45,21 @@ Guiado por símbolos similares a su marca, Adam llegó a una puerta de piedra en
 lo profundo del bosque. Al tocarla, esta tembló suavemente y comenzó a abrirse,
 como si lo reconociera.
 
-## Capítulo 09: Más allá del umbral
-El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un
-color imposible, y la gravedad cambiaba con cada paso. Figuras encapuchadas lo
-esperaban. “Has regresado”, dijo una voz. “Pero no eres el mismo”.
+## Capítulo 09: Más allá del umbral  
+El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un  
+color imposible, y la gravedad cambiaba con cada paso. Figuras encapuchadas lo  
+esperaban. “Volviste”, dijo una voz. “Pero ya no sos el mismo”.
+
+Mientras se aclimataba e intentaba hacer pie, iba reconociendo poco a poco,  
+a través de visiones, quiénes eran aquellos robustos e imponentes encapuchados.  
+Una vez en situación, se dio cuenta de lo que estaba pasando: su presencia no  
+era azarosa, él era parte de un ciclo del que alguna vez intentó escapar.
+
+Las figuras lo rodearon sin hablar, pero sus pensamientos retumbaban en su mente.  
+No eran enemigos, ni aliados. Eran los guardianes de un equilibrio al que Adam  
+había traicionado en otra vida. Una vida que ahora recordaba solo en fragmentos.  
+Todo a su alrededor parecía flotar, incluso su culpa, suspendida en ese otro mundo.
+
 
 ## Capítulo 10: La decisión final
 Los recuerdos regresaron con violencia. El pacto, el sacrificio, la promesa
