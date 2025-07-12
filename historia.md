@@ -106,6 +106,11 @@ El mundo al otro lado.
 El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un
 color imposible, y la gravedad cambiaba con cada paso. Figuras encapuchadas lo
 esperaban. “Has regresado”, dijo una voz. “Pero no eres el mismo”.
+Sus ojos se adaptaron lentamente a la extraña luz, mientras una mezcla de temor y 
+determinación crecía en su pecho. Sabía que cruzar ese umbral lo había transformado,
+pero aún no comprendía cuánto ni en qué dirección.
+Las figuras avanzaron, susurrando secretos que parecían resonar en el aire mismo,
+prometiendo respuestas... o quizá un destino irreversible.
 
 ## Capítulo 10: La decisión final
 Los recuerdos regresaron con violencia. El pacto, el sacrificio, la promesa
