@@ -62,16 +62,6 @@ toda resistencia se desmoronó. El flujo de memorias lo atravesó como un relám
 sellados en silencio, traiciones antiguas, y un nombre susurrado por voces olvidadas. 
 Adam cayó de rodillas. Ya no era solo un viajero; era la chispa que podía romper —o cerrar— el ciclo.
 
-# Capítulo 09: Más allá del umbral
-El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un
-color imposible, y la gravedad cambiaba con cada paso. Figuras encapuchadas lo
-esperaban. “Volviste”, dijo una voz. “Pero ya no sos el mismo”.
-
-Mientras se aclimataba e intentaba hacer pie iba reconociendo, poco a poco,
-a través de visiones, quienes eran aquellos robustos e imponentes encapuchados.
-Una vez en situación se dió cuenta lo que estaba pasando: su presencia estaba
-lejos de ser coincidencia, él era parte de algo más grande que si mismo.
-
 ## Capítulo 10: La decisión final
 Los recuerdos regresaron con violencia. El pacto, el sacrificio, la promesa
 rota. Adam comprendió que había olvidado para sobrevivir. Ahora debía elegir:
