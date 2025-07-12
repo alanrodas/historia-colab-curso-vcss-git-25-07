@@ -57,6 +57,11 @@ No eran enemigos, ni aliados. Eran los guardianes de un equilibrio al que Adam
 había traicionado en otra vida. Una vida que ahora recordaba solo en fragmentos.  
 Todo a su alrededor parecía flotar, incluso su culpa, suspendida en ese otro mundo.
 
+Entonces, una de las figuras se adelantó y colocó una mano en su pecho. En ese instante, 
+toda resistencia se desmoronó. El flujo de memorias lo atravesó como un relámpago: pactos 
+sellados en silencio, traiciones antiguas, y un nombre susurrado por voces olvidadas. 
+Adam cayó de rodillas. Ya no era solo un viajero; era la chispa que podía romper —o cerrar— el ciclo.
+
 # Capítulo 09: Más allá del umbral
 El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un
 color imposible, y la gravedad cambiaba con cada paso. Figuras encapuchadas lo
