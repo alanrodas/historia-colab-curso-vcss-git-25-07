@@ -48,21 +48,21 @@ que no solo era una mirada lejana, pronto empezó a escuchar ruidos y voces que 
 perder la cabeza y por cada paso que daba, mas ansioso por salir de ese bosque estaba.
 
 ## Capítulo 03: Sombras en la niebla
-A medida que avanzaba, la bruma lo envolvía. Voces apagadas surgían entre los árboles,
-y una figura difusa lo observaba en silencio. No tenía rostro, pero sentía que lo seguía
+A medida que avanzaba, la bruma lo envolvía. Voces apagadas surgían entre los árboles,  
+y una figura difusa lo observaba en silencio. No tenía rostro, pero sentía que lo seguía  
 incluso cuando intentaba convencerse de que no había nada allí.
 
-Se detuvo. El crujido de las hojas no venía de sus pasos. Alguien más estaba cerca.
-Giró lentamente, pero solo encontró niebla y sombras entre los troncos.
-El corazón le golpeaba el pecho, como queriendo escapar antes que él.
+Se detuvo. El crujido de las hojas no venía de sus pasos. Alguien más estaba cerca.  
+Giró lentamente, pero solo encontró niebla y sombras entre los troncos.  
+El corazón le golpeaba el pecho, como queriendo escapar antes que él.  
 Una respiración ajena vibraba en el aire, detrás suyo.
 
-una figura inmóvil, sin rostro, a pocos metros. Su cuerpo tembló, sin saber si
-aquello era real o parte de su mente agotada. Dio un paso atrás, y al parpadear,
-La figura se desvanecía entre la niebla densa y fría,
-mientras el silencio se rompía con susurros lejanos,
-un escalofrío recorrió su espalda sin previo aviso,
-y la duda se volvió compañera inseparable en la oscuridad.
+Una figura inmóvil, sin rostro, a pocos metros. Su cuerpo tembló, sin saber si  
+aquello era real o parte de su mente agotada. Dio un paso atrás, y al parpadear,  
+la figura se desvanecía entre la niebla densa y fría.
+
+El silencio se rompía con susurros lejanos. Un escalofrío recorrió su espalda  
+sin previo aviso, y la duda se volvió compañera inseparable en la oscuridad.
 
 
 ## Capítulo 04: El aliado inesperado
