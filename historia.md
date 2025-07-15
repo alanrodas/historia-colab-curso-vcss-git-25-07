@@ -23,8 +23,29 @@ sensación de familiaridad que lo inquietaba profundamente.
 
 ## Capítulo 02: Huellas y secretos
 El suelo húmedo estaba plagado de pisadas. Algunas eran suyas, otras no.
-Siguiéndolas, Adam encontró un viejo diario cubierto de barro. La portada
-llevaba su nombre, y una frase subrayada lo hizo temblar: “No confíes en ellos”.
+Siguiéndolas, Adam encontró un viejo diario cubierto de barro. Al verlo se dio 
+cuenta de que se trataba del diario de su amada, al leer la primera frase 
+se quedo boquiabierto, la frase decia: "Olvidate".
+
+En ese momento empezó a recordar su último encuentro con su madre,
+como habian cambiado las cosas al pasar de los dias, y de su ultima
+discución que termino acabando todo, fue un momento de frustracion y sufrimiento,
+en el cual sus pensamientos se tornaban difusos.
+
+Con poca claridad en su mente continuó con su recorrido, cada paso que daba lo llevaba 
+más profundo en sus recuerdos. El diario, pesado y frío entre sus manos, parecía amplificar 
+la confusión y el sufrimiento que lo embargaban, sus pensamientos girando en un torbellino 
+difuso mientras intentaba descifrar el significado oculto detrás de frase de su amada.
+
+Adam no entendia a que se referia el libro, la confusion hacia su cabeza arder,
+pero debia seguir, sentia la necesidad de encontrar la manera de salir de ese
+sombrio bosque. Luego de dar unos pasos alejandose del alarmante aviso,
+sintió una mirada penetrante, amenazando con acercarse.
+
+Aunque no sabia que era lo que estaba observándolo el decidió correr, deseando que 
+ese sospechoso ser sea incapaz de alcanzarlo, pero sus intentos fueron en vano ya 
+que no solo era una mirada lejana, pronto empezó a escuchar ruidos y voces que le hacían 
+perder la cabeza y por cada paso que daba, mas ansioso por salir de ese bosque estaba.
 
 ## Capítulo 03: Sombras en la niebla
 A medida que avanzaba, la bruma lo envolvía. Voces apagadas surgían entre los árboles,
