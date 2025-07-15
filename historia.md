@@ -25,7 +25,13 @@ difuso mientras intentaba descifrar el significado oculto detrás de frase de su
 Adam no entendia a que se referia el libro, la confusion hacia su cabeza arder,
 pero debia seguir, sentia la necesidad de encontrar la manera de salir de ese
 sombrio bosque. Luego de dar unos pasos alejandose del alarmante aviso,
-comenzo a sentirse vigilado por una mirada mordaz sin dueño visible, pero real.
+sintió una mirada penetrante, amenazando con acercarse.
+
+Aunque no sabia que era lo que estaba observándolo el decidió correr, deseando que 
+ese sospechoso ser sea incapaz de alcanzarlo, pero sus intentos fueron en vano ya 
+que no solo era una mirada lejana, pronto empezó a escuchar ruidos y voces que le hacían 
+perder la cabeza y por cada paso que daba, mas ansioso por salir de ese bosque estaba.
+
 
 ## Capítulo 03: Sombras en la niebla
 A medida que avanzaba, la bruma lo envolvía. Voces apagadas surgían entre los
