@@ -17,12 +17,7 @@ se quedo boquiabierto, la frase decia: "Olvidate".
 En ese momento empezó a recordar su último encuentro con su madre,
 como habian cambiado las cosas al pasar de los dias, y de su ultima
 discución que termino acabando todo, fue un momento de frustracion y sufrimiento,
-en el cual sus pensamientos se tornaban difusos.
-
-Con poca claridad en su mente continuó con su recorrido, cada paso que daba lo llevaba 
-más profundo en sus recuerdos. El diario, pesado y frío entre sus manos, parecía amplificar 
-la confusión y el sufrimiento que lo embargaban, sus pensamientos girando en un torbellino 
-difuso mientras intentaba descifrar el significado oculto detrás de frase de su amada.
+pero tuvo que continuar su camino.
 
 =======
 Siguiéndolas, Adam encontró un viejo diario cubierto de barro. La portada
